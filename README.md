@@ -1,4 +1,4 @@
-### BOAS VINDAS AO MEU PERFIU 😍
+### BOAS VINDAS AO MEU PERFIL 😍
 
 meu nome é Grendely Aparecuda
 
